@@ -1,5 +1,9 @@
 + Silahkan Kalian Isi Nama, Umur Dan Tempat Tinggal
 
++ Nama: I Putu Jovano
++ Umur: 39
++ Tempat Tinggal: Pentadio barat
+
 + Nama: Nova Juliyana Bonarate
 + Umur: 21
 + Tempat Tinggal: Jl. Rusli Datau
