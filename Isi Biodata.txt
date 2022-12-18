@@ -1,6 +1,6 @@
 + Silahkan Kalian Isi Nama, Umur Dan Tempat Tinggal
 
-+ Nama: ...
-+ Umur: ...
-+ Tempat Tinggal: ...
++ Nama: I Putu Jovano
++ Umur: 39
++ Tempat Tinggal: Pentadio barat
 
