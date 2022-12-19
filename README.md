@@ -30,4 +30,4 @@ Untuk di tanjakan, pastikan untuk menambah kecepatan sebelum jalannya menjulang 
 Satu hal yang penting, gunakan kedua rem secara bersamaan agar kualitas pengereman sesuai dengan harapan. Gunakan insting untuk menarik tuasnya agar pengereman tidak terlalu spontan. 
 
 8. Terus membiasakan diri dengan kendaraan
-Yang paling penting adalah kalian harus selalu terbiasa dengan kendaraan yang kalian miliki. Setiap kendaraan itu berbeda, walaupun merek dan jenisnya sama. Kenali kendaraanmu, kenali setiap karakteristiknya, dan keselamatan dalam berkendara akan selalu menaungimu.
+Yang paling penting adalah kalian harus selalu terbiasa dengan kendaraan yang kalian miliki. Setiap kendaraan itu berbeda, walaupun merek dan jenisnya sama. Kenali kendaraanmu, kenali setiap karakteristiknya, dan keselamatan dalam berkendara akan selalu menaungimu..
